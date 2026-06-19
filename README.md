@@ -1,0 +1,1 @@
+analizar el impacto y la influencia de las herramientas tecnológicas en los diversos ámbitos cotidianos —como el académico, familiar y laboral— evaluando críticamente sus aportes al desarrollo de la humanidad. 
